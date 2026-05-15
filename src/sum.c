@@ -1,1 +1,1 @@
-khong co 1 cai gi ca!!!
+thong tin cua ham sum
